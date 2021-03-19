@@ -2,12 +2,12 @@
 
 ## Ingredientes
 
-_3/4 Taza de Azúcar refinada_
-_1 Lata de Leche Condensada_
-_1 Lata de Leche Evaporada_ 
-_1 Paquete de Queso crema a temperatura ambiente (190 g)_
-_5 Huevos_
-_1 Cucharada de Esencia de vainilla_
+* _3/4 Taza de Azúcar refinada_
+* _1 Lata de Leche Condensada_
+* _1 Lata de Leche Evaporada_ 
+* _1 Paquete de Queso crema a temperatura ambiente (190 g)_
+* _5 Huevos_
+* _1 Cucharada de Esencia de vainilla_
 
 ## Procedimiento
 
