@@ -28,3 +28,5 @@
 
 * Retira del fuego y deja enfriar por completo
 * Desmolda y sirve.
+
+(https://cdn.kiwilimon.com/recetaimagen/21435/th5-640x426-11502.jpg)
